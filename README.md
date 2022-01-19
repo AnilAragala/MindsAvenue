@@ -1,4 +1,4 @@
-# Minds Avenue Solutions Pvt Ltd
+# Minds Avenue Software Solutions Pvt Ltd
 
 
 ## Description
